@@ -1,0 +1,1 @@
+# Pesetacoin_WooCommerce-Plugin
